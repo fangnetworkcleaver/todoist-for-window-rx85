@@ -1,4 +1,4 @@
-# 
+# Enhance Todoist for Windows with Todoist for Windows updated Script: team-assignment & recurring-tasks, the #1 script. Includes team-assignment and recurring-tasks for a smoother
 
 
 
